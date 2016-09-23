@@ -17,6 +17,8 @@ Win版本下载：https://pan.baidu.com/s/1jIygQCe 密码: ccy5
 Mac版本下载：https://pan.baidu.com/s/1boZs9sF 密码: 5m7u
 
 
+破解文件，直接替换就行，Windows，Mac：链接: https://pan.baidu.com/s/1b0OJ6I 密码: dik6
+
 ### 开发工具破解：
 
 
