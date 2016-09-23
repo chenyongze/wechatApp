@@ -40,7 +40,7 @@ Mac 测试可用，Windows 尚未测试
 
 ###视图
 
-![alt text](http://o6wypsyc2.bkt.clouddn.com/16-9-23/10997474.jpg "wechatApp yongze")
+![](http://o6wypsyc2.bkt.clouddn.com/16-9-23/10997474.jpg)
 
 
 
