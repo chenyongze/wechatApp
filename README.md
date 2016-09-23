@@ -12,15 +12,15 @@ http://notedown.cn/weixin/component/
 
 ### 开发工具下载：
 
-Win版本下载：https://pan.baidu.com/s/1dEEVITV 密码: xitu
+Win版本下载：https://pan.baidu.com/s/1jIygQCe 密码: ccy5
 
-Mac版本下载： https://pan.baidu.com/s/1pLzY4Bp 密码: xitu
+Mac版本下载：hhttps://pan.baidu.com/s/1boZs9sF 密码: 5m7u
 
 
 ### 开发工具破解：
 
 
-下载：https://pan.baidu.com/s/1geTeKNp 密码: 5nge
+下载：https://pan.baidu.com/s/1skHpljZ 密码: tfmb
 
 Mac 测试可用，Windows 尚未测试
 
